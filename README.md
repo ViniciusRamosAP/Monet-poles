@@ -137,7 +137,7 @@ Esta Política de Privacidade pode ser atualizada periodicamente. As alteraçõe
 
 ## 9. Contato
 
-Se você tiver dúvidas sobre esta Política de Privacidade, entre em contato pelo e-mail:
+Se você tiver dúvidas sobre esta Política de Privacidade ou queira excluir sua conta, entre em contato pelo e-mail:
 
 📧 vdmramos@gmail.com
 ---
